@@ -9,7 +9,7 @@
 - ### 👨‍💻 Fun Facts:
 - 💡 I love exploring new technologies and always up for a challenge.
 - 🎮 In my free time, I enjoy gaming and contributing to open source.
-- ✍️ "I love making sketches of Naruto and anime."
+- ✍️ "I love making sketches of Nature and anime."
 
 - 📚 My education **[+2 complete]**
 -  🏫 My School **[Presidential Graduate school]**
